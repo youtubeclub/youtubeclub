@@ -1,1 +1,3 @@
-# [YoutubeClub Discord](https://discord.gg/qR3PxpanX4)
+# YoutubeClub
+
+- [YoutubeClub Discord](https://discord.gg/qR3PxpanX4)
